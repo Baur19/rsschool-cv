@@ -1,8 +1,8 @@
-# Aldabergenov Baurzhan
+# Aldabergen Baurzhan
 
 
 **Location:** Kazakhstan, Nur-Sultan  
-**Phone Number:** +7076297814  
+**Phone Number:** +7016297814  
 **Email:** [abaurzhan19@gmail.com](mailto:abaurzhan19@gmail.com)  
 
 ## About Me
