@@ -4,7 +4,7 @@
 **Location:** Kazakhstan, Nur-Sultan  
 **Phone Number:** +7086297814  
 **Email:** [abaurzhan19@gmail.com](mailto:abaurzhan19@gmail.com)  
-**telegram:**baur
+**telegram:**baurzhan
 ## About Me
 
 Hello! I'm Baurzhan. Judo Athlete; addicted to games, UFC and codes!  
